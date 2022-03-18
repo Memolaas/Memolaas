@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Memolaas
+- 👀 I’m interested in learning how to code
+- 🌱 I’m currently learning how to learn ahah
+- 💞️ I’m looking to collaborate on everyone!
